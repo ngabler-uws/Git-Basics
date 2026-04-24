@@ -12,3 +12,6 @@ I'm obsessed with weiner dogs
 
 
 Josh is sorry
+
+Mike is doing the training in a makeup status due to PTO
+
